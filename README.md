@@ -1,0 +1,1 @@
+Opel Діагностика — CAN / PRO / Android Auto (UA)
